@@ -1,3 +1,0 @@
-# anupgurau.github.io
-# Anup
-
